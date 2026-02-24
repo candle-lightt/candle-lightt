@@ -6,6 +6,7 @@
 
 ![poppy-playtime-poppy-playtime-chapter-4](https://github.com/user-attachments/assets/1afd1b15-29f8-4575-8286-a115c0b181a4)
 
+![x6vufx](https://github.com/user-attachments/assets/bbf86ae9-6a73-4522-bcdc-d6ecda819d71)
 
 ‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
 
