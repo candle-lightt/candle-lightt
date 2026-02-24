@@ -17,7 +17,6 @@ pls always whisper if you wanna talk bcz i never pay attention to the game so i 
 ● Pedophiles / zoophiles
 ● Under 13
 ● Homophobes / transphobes
-● Humans
 ● Forsaken/Dandy's World fandom
 
 ‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
@@ -25,14 +24,6 @@ pls always whisper if you wanna talk bcz i never pay attention to the game so i 
 Please iwc, im very sensitive sorry
 
 dont send random friend requests puh-lease 💔
-
-
-# Fandoms I'm in:
-● Dandy's World
-● Poppy Playtime
-● Pokémon
-● Warrior Cats
-● Regretevator
 
 For some reason I tend to be bad at remembering who people are,  
 (especially if you send a friend request and then don't talk to me for a while)  
