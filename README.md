@@ -1,3 +1,4 @@
+<span style="color:#7017A3">
 <div align="center">
  
 `Still a work in progress`
@@ -38,3 +39,4 @@ i try to remember but if i forget then im so sorry!
 
 
 </div>
+</span>
