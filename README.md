@@ -1,11 +1,10 @@
-<span style="color:#7017A3">
 <div align="center">
  
 `Still a work in progress`
  
 ![ezgif-71ad19439ec8f078](https://github.com/user-attachments/assets/44220378-27bc-4037-8de2-3b9233a6aa9d)
 
-‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
+${\textsf{\color{#7017A3}‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
 
 🌙 = semi-afk / offtab (W2I)  
 | ⛔ = afk / dniuf (W2I)
