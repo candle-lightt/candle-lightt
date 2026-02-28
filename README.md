@@ -15,7 +15,7 @@ pls always whisper if you wanna talk bcz i never pay attention to the game so i 
 ● Pedophiles / zoophiles
 ● Under 13
 ● Homophobes / transphobes
-● Forsaken/Dandy's World fandom
+● Forsaken fandom
 
 ‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
 
