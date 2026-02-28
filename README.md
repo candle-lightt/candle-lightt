@@ -17,6 +17,8 @@ pls always whisper if you wanna talk bcz i never pay attention to the game so i 
 ● Homophobes / transphobes
 ● Forsaken fandom
 
+Especially DNI if you use sexual ponies... gtfo bro
+
 ‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
 
 Please iwc, im very sensitive sorry
