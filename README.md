@@ -29,6 +29,8 @@ For some reason I tend to be bad at remembering who people are,
 (especially if you send a friend request and then don't talk to me for a while)  
 i try to remember but if i forget then im so sorry!
 
+i dont really care if you copy any of my skins, go for it lol
+
 
 <sup>ok bye !</sup><br>
 <sub>h</sub>
