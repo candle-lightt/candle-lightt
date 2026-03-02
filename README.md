@@ -23,7 +23,7 @@ Especially DNI if you use sexual ponies... gtfo bro
 
 Please iwc, im very sensitive sorry
 
-dont send random friend requests puh-lease 💔
+dont send random friend requests puh-lease 💔 i'll either ignore them or remove later on
 
 For some reason I tend to be bad at remembering who people are,  
 (especially if you send a friend request and then don't talk to me for a while)  
