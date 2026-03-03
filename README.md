@@ -34,7 +34,7 @@ i love meeting new people, especially if you share some of my fandoms, i might a
 ![profile views](https://img.shields.io/badge/views-2763-8A2BE2) 👀
 
 
-![poppy-playtime-poppy-playtime-chapter-4](https://github.com/user-attachments/assets/1afd1b15-29f8-4575-8286-a115c0b181a4)
+<img width="1000" height="529" alt="PineTools com_scourge (1)" src="https://github.com/user-attachments/assets/820618e8-0cd7-4820-8707-4ce4ceb43185" />
 
 
 </div>
