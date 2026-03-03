@@ -21,14 +21,12 @@ Especially DNI if you use sexual ponies... gtfo bro
 
 ‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
 
-Please iwc, im very sensitive sorry
-
 dont send random friend requests puh-lease 💔 i'll either ignore them or remove later on
 
 For some reason I tend to be bad at remembering who people are,  
-(especially if you send a friend request and then don't talk to me for a while)  
 i try to remember but if i forget then im so sorry!
 
+i love meeting new people, especially if you share some of my fandoms, i might act kinda awkward/dry at first but i swear i can be a good friend!!
 
 <sup>ok bye !</sup><br>
 <sub>h</sub>
