@@ -31,7 +31,7 @@ i love meeting new people, especially if you share some of my fandoms, i might a
 <sup>ok bye !</sup><br>
 <sub>h</sub>
 
-![profile views](https://img.shields.io/badge/views-2763-8A2BE2) 👀
+![profile views](https://img.shields.io/badge/views--1-8A2BE2) what
 
 
 <img width="1000" height="529" alt="PineTools com_scourge (1)" src="https://github.com/user-attachments/assets/820618e8-0cd7-4820-8707-4ce4ceb43185" />
