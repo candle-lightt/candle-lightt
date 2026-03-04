@@ -13,7 +13,7 @@ pls always whisper if you wanna talk bcz i never pay attention to the game so i 
 
 # DNI list:
 ● Pedophiles / zoophiles
-● Under 13
+● 13 n under
 ● Homophobes / transphobes
 ● Forsaken fandom
 
