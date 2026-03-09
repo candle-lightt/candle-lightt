@@ -10,19 +10,9 @@
 | ⛔ = afk / dniuf (W2I)
 
 pls always whisper if you wanna talk bcz i never pay attention to the game so i never check the public chat
-
-# DNI list:
-● Pedophiles / zoophiles
-● 13 n under
-● Homophobes / transphobes
-● Forsaken fandom
-
-Especially DNI if you use sexual ponies... gtfo bro
+c+h is always encouraged !!
 
 ‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
-
-dont send random friend requests puh-lease 💔 i'll either ignore them or remove later on
-
 For some reason I tend to be bad at remembering who people are,  
 i try to remember but if i forget then im so sorry!
 
