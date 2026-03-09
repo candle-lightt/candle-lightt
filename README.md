@@ -10,6 +10,7 @@
 | ⛔ = afk / dniuf (W2I)
 
 pls always whisper if you wanna talk bcz i never pay attention to the game so i never check the public chat
+
 c+h is always encouraged !!
 
 ‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
