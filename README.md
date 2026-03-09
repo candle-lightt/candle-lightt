@@ -14,10 +14,11 @@ pls always whisper if you wanna talk bcz i never pay attention to the game so i 
 c+h is always encouraged !!
 
 ‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
+
 For some reason I tend to be bad at remembering who people are,  
 i try to remember but if i forget then im so sorry!
 
-i love meeting new people, especially if you share some of my fandoms, i might act kinda awkward/dry at first but i swear i can be a good friend!!
+i love meeting new people, especially if you share some of my fandoms, i might act kinda awkward/dry at first though
 
 <sup>ok bye !</sup><br>
 <sub>h</sub>
